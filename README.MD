@@ -1,0 +1,1 @@
+"inferno li sima ki nunca maz ka ta bira paraiso" - Landim
